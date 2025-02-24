@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...you
 - 🌱 I’m currently learning ...how to love you
 - 💞️ I’m looking to collaborate on ... someone like you
-- 📫 How to reach me ... never
+- 📫 How to reach me ... impossible 
 - 😄 Pronouns: ...you
 - ⚡ Fun fact: ... Annoyed 
 
